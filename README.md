@@ -1,0 +1,1 @@
+An anime-inspired 3D chess game where strategy meets combat! Choose your fighters, master unique abilities, and battle your opponents in tactical chess-style matches. Every piece brings its own fighting style, turning every move into a chance to unleash epic anime-inspired action.
